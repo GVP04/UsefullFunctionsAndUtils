@@ -1,0 +1,1 @@
+The universe is not expanding. Infinity cannot expand. The compression of matter gives the effect of expansion of the universe, when viewed from the inside. Take a look "from the outside" of the universe and you will realize that the Big Bang is a fiction. There is another explanation. 
